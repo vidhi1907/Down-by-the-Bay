@@ -6,3 +6,7 @@ Back to my home
 I dare not go
 For if I do
 My mother will say
+
+"Did you ever see a goose
+Kissing a moose?"
+Down by the bay.
